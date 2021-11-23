@@ -1,1 +1,1 @@
-# amogus.com
+sex bomb omb
